@@ -1,5 +1,3 @@
-# Term-Paper
-
 ### GROUP MEMBERS
 - **Syah**
 - **'Iffah Dalalin binti Mohd Helme (1916304)**
